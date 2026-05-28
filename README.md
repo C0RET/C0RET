@@ -4,8 +4,6 @@
 
 
 
-
-
 ︵︵  ADHD & Irritable . I apologize if I've ever argued or been rude 2 you ! I follow back and Block Freelyy ! ‧˚꒰🐾୭ ˚. ᵎᵎ
 
  ︵︵  I'm usually friendly . . . Alwayz check my ponies name ! (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) ˚. ᵎᵎ
