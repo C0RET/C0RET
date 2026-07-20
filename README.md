@@ -8,7 +8,7 @@
 
  ︵︵  I'm usually friendly . . . Alwayz check my ponies name ! (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) ˚. ᵎᵎ
 
- - :: GTC/GTS , FTS AND (RARELY) MAFIA HOSTER !
+ - :: WBF , GTC/GTS , FTS AND (RARELY) MAFIA HOSTER !
 
 ## I love my sweetheart ~ !
 
