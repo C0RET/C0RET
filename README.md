@@ -10,6 +10,9 @@
 
  - :: WBF , GTC/GTS , FTS AND (RARELY) MAFIA HOSTER !
 
+<[ p.s - I'm not that active sometimes . . .]
+
+
 ## I love my sweetheart ~ !
 
 
