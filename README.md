@@ -1,6 +1,6 @@
 
 
-![image alt](https://user42152.na.imgto.link/public/20261008/efa55d0b4f3ed99d2a9e8569-1000003192.avif)
+![image alt](https://cdn.discordapp.com/attachments/1423518953938096192/1557629966030741634/Untitled261_20260825231749.png?ex=6ac87f73&is=6ac72df3&hm=a716ee80e638e6993f9a7a6a7f3adc8808364b1b85e721cfca8571c7cab393dc&)
 
 
 
