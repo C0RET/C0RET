@@ -13,3 +13,6 @@ I follow back and Block Freely ! ‧˚꒰✧୭ ˚. ᵎᵎ
 
    
 ## I love my sweetheart ~ !
+
+
+I Will Fix. this later-.-.....
