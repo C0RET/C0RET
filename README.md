@@ -5,14 +5,14 @@
 
 
 
-︵︵  ADHD & Irritable . I apologize if I've ever argued w you ! I follow back and Block Freelyy ! ‧˚꒰✧୭ ˚. ᵎᵎ
+<code style="color : violet"> ︵︵  ADHD & Irritable . I apologize if I've ever argued w you ! I follow back and Block Freely ! ‧˚꒰✧୭ ˚. ᵎᵎ
 
- ︵︵  I'm usually friendly . . . Alwayz check my ponies name ! (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) ˚. ᵎᵎ
+ 
 
- - :: WBF , GTC/GTS , FTS AND (RARELY) MAFIA HOSTER !
+<code style="color : Violet">  - :: WBF , GTC/GTS , FTS AND (RARELY) MAFIA HOSTER !
 
-    <sup><sub>P.S , I'm not very Active . . . t.t</sub></sup>
 
+    
 ## I love my sweetheart ~ !
 
 
