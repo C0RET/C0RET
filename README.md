@@ -4,7 +4,6 @@
 
 
 
-
 <code style="color : violet"> ︵︵  ADHD & Irritable . Socially Awkward, INT first. 
 I follow back and Block Freely ! ‧˚꒰✧୭ ˚. ᵎᵎ
   - :: WBF , GTC/GTS , FTS AND (RARELY) MAFIA HOSTER .
